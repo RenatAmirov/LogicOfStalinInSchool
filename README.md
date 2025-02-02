@@ -1,0 +1,2 @@
+# LogicOfStalinInSchool
+LogicOfStalinInSchool
